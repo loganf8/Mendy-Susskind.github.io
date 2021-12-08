@@ -1,1 +1,1 @@
-# Mendy-Susskind.github.io
+# MendySusskind.github.io
